@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @animalover
+- 👀 I’m interested in helping animals
+- 🌱 I’m currently learning a lot of stuff
+- 💞️ I’m looking to collaborate on a website
